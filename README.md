@@ -1,6 +1,6 @@
 - 👋   Olá, aqui é a @louie-vegan. 
-- 👀   Meus interesses são códigos/programação (duh), ativismo/teoria queer, estudos em segurança tecnológica e museologia social.
-- 🌱   Aprendendo tudo isso aqui.
+- 👀   Tô de olho em códigos/programação (duh), ativismo/teoria queer, estudos em segurança tecnológica e museologia social.
+- 🌱   Aprendendo tudo isso.
 - 📫   Como chegar em mim ... [Twitter] @louie_vegan
 - 🏳️‍⚧️  Pronomes ... ela/dela
 
